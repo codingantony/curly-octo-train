@@ -4,3 +4,4 @@
 <p>Candaman had a hook for his hand and was giving out chocolates to kids</p>
 <p>once a girl found razor in her candy and called the cops</p>
 <p>cops immediately found the man and killed him on the spot</p>
+<p>do you know what they fond afterwards, more razors</p>
