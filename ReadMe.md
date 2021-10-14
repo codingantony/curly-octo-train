@@ -5,3 +5,4 @@
 <p>once a girl found razor in her candy and called the cops</p>
 <p>cops immediately found the man and killed him on the spot</p>
 <p>do you know what they fond afterwards, more razors</p>
+<p>candyman was inocent all along, but thier narrow mind didn't allowed to see the picture</p>
