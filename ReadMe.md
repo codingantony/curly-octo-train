@@ -9,3 +9,4 @@
 <p>once there was a boy who played in the backyard</p>
 <p>white girl accused him of stealing something</p>
 <p>which boy didn't commit, hence he was send to jail just beacause of that</p>
+<p>he was sent to chair to die</p>
