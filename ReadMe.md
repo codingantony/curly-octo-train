@@ -1,2 +1,2 @@
 # Hai
-This has been fun
+Let me tell you a story, about a candy man
