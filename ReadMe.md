@@ -10,3 +10,4 @@
 <p>white girl accused him of stealing something</p>
 <p>which boy didn't commit, hence he was send to jail just beacause of that</p>
 <p>he was sent to chair to die</p>
+<p>but he really didn't die, did he</p>
